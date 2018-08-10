@@ -6,7 +6,9 @@
 
 永久网址
 
-[101fix.com](https://101fix.com)
+[https://github.com/avhd101/home](https://github.com/avhd101/home)
+
+[101fix.cc](https://101fix.cc)
 
 国产浏览器(如 UC、360、QQ、百度) 不定期可能会屏蔽网站，建议使用谷歌浏览器观看 
 
