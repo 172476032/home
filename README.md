@@ -1,7 +1,7 @@
 # AVHD101 最新网址
 请选择最新网址
 
-[cn.ax101.ws](https://cn.as98.ws)
+[cn.av101.ws](https://cn.av101.ws)
 
 
 永久网址
